@@ -7,7 +7,3 @@
 ✦ i usually drawing or  offtab while playing ponytown so i'll reply quicker when whispers (warning.. im also really REALLY bad at socializing)
 
 ✦ feel free to interact and c+h !!
-<!---
-rxttencorpse/rxttencorpse is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
